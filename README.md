@@ -1,2 +1,2 @@
 Olá 👋, eu sou a Daniela Sati.
-Trabalho com UX/UI e iniciando em desenvolvimento.
+Trabalho com UX/UI com um pé em desenvolvimento.
